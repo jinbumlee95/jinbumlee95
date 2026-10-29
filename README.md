@@ -1,6 +1,6 @@
 ### About me
 
-Please check [here](https://jinbumlee95.github.io/)
+Please check [here](https://jblee.app/)
 
 ### 🎬 한국인 여러분께
 
